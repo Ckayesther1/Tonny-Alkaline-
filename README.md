@@ -7,7 +7,7 @@
 </p>
 <p align="center"> 
   <a href="">
-    <img alt=Support height="390" src="https://i.ibb.co/dKwNM0X/1680856058-816-x-1456.png"> 
+    <img alt=Support height="390" src="https://files.catbox.moe/uhui9x.jpg"> 
     </p>
  
  
